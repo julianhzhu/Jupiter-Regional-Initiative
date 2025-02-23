@@ -8,8 +8,8 @@ TBD
 
 ### Contact
 
-TG: @julianhzhu
-Discord: discord.gg/jup
+- TG: @julianhzhu
+- Discord: discord.gg/jup
 
 ### Current Community-run Pages
 
